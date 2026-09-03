@@ -85,4 +85,4 @@ For any queries or suggestions, feel free to reach out:
 *   **👤 Name:** LALITH VARDHAN REDDY
 *   📧 **Email:** reddylalithvardhan@gmail.com
 *   💻 **GitHub:** [LALITH VARDHAN REDDY](https://github.com/Lalith-Reddy2004)
-*   🔗 **LinkedIn:** [LALITH VARDHAN REDDY](https://www.linkedin.com/in/lalithvardhan-reddy-bb0420272/)
+*   🔗 **LinkedIn:** [LALITH VARDHAN REDDY](https://www.linkedin.com/in/lalith-vardhan-reddy-bb0420272/)
